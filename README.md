@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @larskarlsenSSG
+- 📫 How to reach me lars.karlsen@soprasteria.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Norwegian coder in Gothenburg, Sweden!
